@@ -2,7 +2,8 @@
 
 ## THE ALCHEMIST BY PAULO COELHO
   1)Very beautifull novel that teaches life of passion, of finding something, of building something is more beautifull then anything else.
-                        You have no beautifull life unless it have passion in it. (By Nelson Mandela)
+           </br>             You have no beautifull life unless it have passion in it. (By Nelson Mandela)
+           </br>
   2)Success is through failures.
   
 ## MILLION MILES IN A THOUSAND YEARS BY DONALD MILLER
